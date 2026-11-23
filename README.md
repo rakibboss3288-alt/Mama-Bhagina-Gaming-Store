@@ -1,2 +1,2 @@
 # Mama-Bhagina-Gaming-Store
-Mama Bhagina Gaming top up
+Mama Bhagina Gaming store
